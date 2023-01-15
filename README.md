@@ -1,1 +1,1 @@
-# my-first-resume
+# my-first-CV
